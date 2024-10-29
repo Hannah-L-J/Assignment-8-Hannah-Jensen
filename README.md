@@ -21,6 +21,8 @@ Your primary goal is to get your skirt out of the way of your legs, so it will n
 - If you have loose or baggy sleeves that can be grabbed and manipulated, wrap each sleeve around the appropriate upper or lower arm, and tuck in the ends. This will prevent your opponent from dragging you around.
 - Your hair (if any) should also be tied up if possible. Consider wearing a hair accessory that can double as a secret weapon if you suspect foul play.
 
+To learn more, watch [the video](https://youtu.be/mHfuvb9EIKI?si=5mtrM_5jCIuw0Igv)!
+
 ***
 
 Enjoy defeating the minions!
