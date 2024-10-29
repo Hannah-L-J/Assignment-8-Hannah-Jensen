@@ -10,7 +10,7 @@ Your primary goal is to get your skirt out of the way of your legs, so it will n
 
 ## If you are wearing a long, full-skirted dress:
 
-1. Pick up all the layers of your skirt, ^hiking them up to knee-height^ .
+1. Pick up all the layers of your skirt, hiking them up to knee-height.
 2. Gather all the excess fabric in front of you into your hands.
 3. Pass this fabric through your legs.
 4. Once the bunched-up fabric is behind you, separate it into two sections and bring them around either side of your waist, keeping hold of them for the next step.
@@ -21,4 +21,6 @@ Your primary goal is to get your skirt out of the way of your legs, so it will n
 - If you have loose or baggy sleeves that can be grabbed and manipulated, wrap each sleeve around the appropriate upper or lower arm, and tuck in the ends. This will prevent your opponent from dragging you around.
 - Your hair (if any) should also be tied up if possible. Consider wearing a hair accessory that can double as a secret weapon if you suspect foul play.
 
-Enjoy ==defeating the minions== !
+***
+
+Enjoy defeating the minions!
